@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @YugiMutluru
 - 👀 I’m interested in  Building Scalable Solutions
-- 🌱 I’m currently Web Technologies.
+- 🌱 I’m currently learning Web and Cloud Technologies.
 - 💞️ I’m looking to collaborate on anything comes my way. 
 - 📫 reach me @ 952-715-7157. 
